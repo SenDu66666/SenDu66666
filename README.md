@@ -16,6 +16,7 @@ Previously, I was a postdoctoral researcher at the Institute of Geosciences (IGE
 
 ## Links
 
+- [Personal website](https://sendu66666.github.io/)
 - [ORCID](https://orcid.org/0000-0002-4900-2109)
 - [LinkedIn](https://www.linkedin.com/in/sen-du-b372b6221/)
 
